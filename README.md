@@ -1,2 +1,0 @@
-# apoiotecnico
-Apoio técnico
